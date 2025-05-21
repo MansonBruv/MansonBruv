@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Workspaces 
 - 📫 How to reach me mansonongoto@gmail.com
 - 😄 Pronouns: Straight
-- ⚡ Fun fact: I ama genius
+- ⚡ Fun fact: I like to be kind to be people
 
 <!---
 MansonBruv/MansonBruv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
